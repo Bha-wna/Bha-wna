@@ -14,7 +14,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/144wCeXU3dej0pY5gFgvUpg3odsa8Jocp/view?usp=drivesdk](https://drive.google.com/file/d/144wCeXU3dej0pY5gFgvUpg3odsa8Jocp/view?usp=drivesdk)
 
-- ⚡ Fun fact **I think I am funny, and that's the fun fact.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
