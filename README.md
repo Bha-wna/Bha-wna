@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **bhawna2907kumari@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/144wCeXU3dej0pY5gFgvUpg3odsa8Jocp/view?usp=drivesdk](https://drive.google.com/file/d/144wCeXU3dej0pY5gFgvUpg3odsa8Jocp/view?usp=drivesdk)
+- 📄 Check out my Resume [https://drive.google.com/file/d/1YzxYwEunB511r1O8nouybAaJnee2DzgV/view?usp=sharing](https://drive.google.com/file/d/1YzxYwEunB511r1O8nouybAaJnee2DzgV/view?usp=sharing)
 
 
 <h3 align="left">Connect with me:</h3>
